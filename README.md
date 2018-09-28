@@ -1,2 +1,2 @@
-# Shewaga_D_Paschenko_M
+# Shewaga_D_Pashchenko_M
 A compined portfolio
